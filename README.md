@@ -1,0 +1,1 @@
+# Vinayakaminerals.github.io
